@@ -1,1 +1,0 @@
-# kotipalliiswarya.github.io.
